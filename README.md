@@ -1,0 +1,6 @@
+- 👋 Olá, me chamo Maria, e tenho 15 anos
+- 👀 eu sou interessada em livros, musicas e minha religião
+- 🌱 minha religião é a umbanda
+- 💞️ atualmente, estou apaixonada por um rapaz, nós estamos se conhecendo
+- 📫 estou escrevendo um livro também, mas nada demais
+- 😄 eu falo portugues, pois, é minha linguagem natural, mas estou aprendendo alemão
